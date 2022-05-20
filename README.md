@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @luispradojr
-- I'm married with Christiane and have a 22 years-old daughter, Sophia
+- I'm married with Christiane and have a 25 years-old daughter, Sophia
 - 👀 I love Physics, Simulation Software, Project Management, Lean Manufacturing, Philosophy, Ethics, Music, and Languages
 - 🌱 I’m currently learning Quantum Computing and AI
 - 💞️ I’m looking to collaborate on Quantum Computing Software
